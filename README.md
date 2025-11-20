@@ -6,7 +6,7 @@
 
 ✦•┈๑⋅⋯ ⋯⋅๑┈·✦ 
 
-#russ 1 server
+#russ 1 server   >>.
 
 -----
 
@@ -15,14 +15,14 @@
 ----
 
 
-you can say that im cool and youll be absolutely **RIGHT**!
+you can say that im cool and youll be absolutely **RIGHT**!  (⁠≧⁠▽⁠≦⁠) 
 
 ----
 
 ![i](https://github.com/user-attachments/assets/f7a15082-fa8b-4ab6-83cd-94a27a1a2508)
 
 
-and *lastly* know that you **like** me.
+and *lastly* know that you **like** me.    -3-
 
 -----
 
