@@ -8,17 +8,23 @@
 
 #russ 1 server
 
+-----
 
 ![i](https://github.com/user-attachments/assets/4869615e-60a1-4db1-b103-6206d942dbb6)
+
+----
 
 
 you can say that im cool and youll be absolutely **RIGHT**!
 
+----
 
 ![i](https://github.com/user-attachments/assets/f7a15082-fa8b-4ab6-83cd-94a27a1a2508)
 
 
 and *lastly* know that you **like** me.
+
+-----
 
 
 ![i](https://github.com/user-attachments/assets/b71170f7-5670-438d-803d-ee95337525d4)
