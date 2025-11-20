@@ -10,7 +10,9 @@ https://avatars.mds.yandex.net/i?id=a009f98f41264dcf1de906f9d3e41c0a38b2258e-519
 -------------------------------
 « ✦ Hi~~ call me **THE VELIKIY** or just **BOSS**
 
-✦•┈๑⋅⋯ ⋯⋅๑┈·✦ #russ 1 server
+✦•┈๑⋅⋯ ⋯⋅๑┈·✦ 
+
+#russ 1 server
 
 you can say that i`m cool and you`ll be absolutely **RIGHT**!
 
