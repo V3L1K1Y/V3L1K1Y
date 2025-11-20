@@ -1,9 +1,6 @@
 
-
-https://avatars.mds.yandex.net/i?id=86ef52da1c7ec08f2c78ee31fd9a76baa1dfbc93-12472731-images-thumbs&n=13
-https://avatars.mds.yandex.net/i?id=a009f98f41264dcf1de906f9d3e41c0a38b2258e-5193708-images-thumbs&n=13
-
-
+![i](https://github.com/user-attachments/assets/6654a316-b100-4996-9a80-df3d9345f1dc)
+![i](https://github.com/user-attachments/assets/c6661711-6791-4fb9-806a-acd957eafcb6)
 
 
 
