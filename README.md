@@ -1,3 +1,5 @@
+https://github.com/antonkomarev/github-profile-views-counter?tab=readme-ov-file
+
 
 ![i](https://github.com/user-attachments/assets/05a1a0a0-f4cd-4d3b-b016-d8eb5b771311)
 
